@@ -10,6 +10,7 @@
 
 ## About Me
 
+I have good communicate skills.
 I like coding and solving mathematical problems!
 
 ## Skills
